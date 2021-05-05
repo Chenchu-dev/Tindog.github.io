@@ -1,1 +1,0 @@
-# Tindog.github.io
